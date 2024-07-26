@@ -1,3 +1,3 @@
-**My portfolio**
+**MY PORTFOLIO**
 
 [aureliusnguyen.com](https://aureliusnguyen.com)
