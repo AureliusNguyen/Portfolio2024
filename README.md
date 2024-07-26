@@ -1,3 +1,3 @@
 **My portfolio**
 
-[Link: aureliusnguyen.com](https://aureliusnguyen.com)
+[aureliusnguyen.com](https://aureliusnguyen.com)
